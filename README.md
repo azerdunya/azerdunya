@@ -1,4 +1,4 @@
-![MasterHead](https://media.licdn.com/dms/image/D4D16AQHJ8RbHOUDPcg/profile-displaybackgroundimage-shrink_350_1400/0/1673041148190?e=1701907200&v=beta&t=G8-6CB3OIoLTneEP0xE2KBXFcy5z2mIx0UJ0FASbtTE)
+![MasterHead](https://i.pinimg.com/originals/2d/e8/82/2de882cd4f3992ada3d609e3a183f7a4.jpg)
 
 
 <h1 align="center">Hi 👋, I'm Azer Dunyamaliyev</h1>
